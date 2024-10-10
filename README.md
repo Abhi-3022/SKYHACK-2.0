@@ -10,4 +10,4 @@ In today’s competitive airline industry, providing efficient and reliable cust
 
 Dataset link - [https://drive.google.com/drive/folders/1d1p8Bxc-FVs-BgeaJbQ6YhJumRH5N9MZ?usp=sharing](https://drive.google.com/drive/folders/1d1p8Bxc-FVs-BgeaJbQ6YhJumRH5N9MZ?usp=sharing)
 
-Presentation link - [https://drive.google.com/file/d/1jOf6C71EthxX93j9S5AAGnYUK9O1ZrWX/view?usp=sharing](https://drive.google.com/file/d/1jOf6C71EthxX93j9S5AAGnYUK9O1ZrWX/view?usp=sharing)
+Presentation link - [https://www.canva.com/design/DAGTEPusQ28/856Hik_yB4el8CgKFCj8LA/edit?utm_content=DAGTEPusQ28&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGTEPusQ28/856Hik_yB4el8CgKFCj8LA/edit?utm_content=DAGTEPusQ28&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
